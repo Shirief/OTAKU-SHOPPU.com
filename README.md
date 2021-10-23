@@ -1,1 +1,1 @@
-# OTAKU-SHOPPU.com
+# otaku-shoppu.com
