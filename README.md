@@ -1,1 +1,0 @@
-# OTAKU-SHOPPU.com
